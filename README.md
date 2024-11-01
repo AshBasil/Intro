@@ -28,4 +28,8 @@ Me & My Husband, Not Click Bait 🩵
 
 ![335553602-256-k406575](https://github.com/user-attachments/assets/4e74ba87-5c15-4dcd-a271-c1c219eb783e)
 
-~`{All Art My Day-to-day-Venti on Twitter!!!}
+~`{Art Above By Day-to-day-Venti on Twitter!!!}
+
+![artworks-EEslRvJQ54RDvkHH-AnVKoA-t500x500](https://github.com/user-attachments/assets/85600128-e545-4cff-9fe1-9ec27c247758)
+
+![bd8961d483e8bcdcb4c5641b0499baa9](https://github.com/user-attachments/assets/51d0cbf6-1a0b-4fcb-aec4-07f2ea34c75f)
