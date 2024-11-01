@@ -33,3 +33,5 @@ Me & My Husband, Not Click Bait 🩵
 ![artworks-EEslRvJQ54RDvkHH-AnVKoA-t500x500](https://github.com/user-attachments/assets/85600128-e545-4cff-9fe1-9ec27c247758)
 
 ![bd8961d483e8bcdcb4c5641b0499baa9](https://github.com/user-attachments/assets/51d0cbf6-1a0b-4fcb-aec4-07f2ea34c75f)
+
+![what-is-the-context-of-this-card-plz-help-v0-vxi2no95sljc1](https://github.com/user-attachments/assets/b5896c67-e048-46f6-8162-b89a91bb8c55)
