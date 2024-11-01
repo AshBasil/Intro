@@ -1,18 +1,19 @@
 # Intro
-⭑𓂃I go By Ash/Ven
 
-꩜ .ᐟI go By He/They But they change often 
+Hello
 
-I'm Genderfluid And pansexual!!
+~`I Go By Ash/Ven
 
-_I love puppets, Flowers, Plants, Apples, and More
+~`He/They/Any
 
-`~Any Int Just be respectful 
+~`Any Int Just dni Proshippers and creeps
 
-'~ C+H is fine!!
+~`Free C+H I don't mind!
 
-°~ I love My husband<3
+~`Afk Often 
 
-'~• I'm socially Awkward so just a warning 
+~`I Love My Husband<3
 
-              ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐
+~`Venti + Kanade Irl
+
+![1482768e316bb0b77f2300bc112d60d0](https://github.com/user-attachments/assets/d20e8d62-30e3-4595-b517-5f70c42a20d9)
