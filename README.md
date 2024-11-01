@@ -1,4 +1,5 @@
 # Intro
+![05180cc6e2baa77d51c9f89b603b12fe](https://github.com/user-attachments/assets/2b9bd430-0ee1-490c-ae15-0f2fc1b27fd2)
 
 Hello
 
@@ -23,3 +24,7 @@ Me & My Husband, Not Click Bait 🩵
 {I love Him}
 
 ![a8650e051f37cbe33f4707129aec6c31](https://github.com/user-attachments/assets/acd06454-7cd5-4b8e-b244-d118d3caab50)
+
+![335553602-256-k406575](https://github.com/user-attachments/assets/4e74ba87-5c15-4dcd-a271-c1c219eb783e)
+
+~`{All Art My Day-to-day-Venti on Twitter!!!}
