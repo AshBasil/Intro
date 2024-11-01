@@ -16,4 +16,3 @@ _I love puppets, Flowers, Plants, Apples, and More
 '~• I'm socially Awkward so just a warning 
 
               ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐
-![image](https://images.app.goo.gl/wWk2tp93xeF6tWi49)
