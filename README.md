@@ -10,7 +10,7 @@
 
 ~`Any Int Just dni Proshippers and creeps
 
-~`Free C+H I don't mind!
+~`interact I don't mind!
 
 ~`Afk Often 
 
