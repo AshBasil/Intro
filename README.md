@@ -12,7 +12,7 @@
 
 ~`I Love My Husband<3
 
-~` I love cosplaying on Roblox and hanging out with my friend groups, I have an online mother and child 🤑
+~` I love cosplaying on Roblox
 
 ~` I'm gender fluid And pansexual 
 
