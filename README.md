@@ -4,7 +4,7 @@
 
 ![05180cc6e2baa77d51c9f89b603b12fe](https://github.com/user-attachments/assets/2b9bd430-0ee1-490c-ae15-0f2fc1b27fd2)
 
-~`We Go By Ash/Ven/Bagel
+~`We Go By Ash/Ven/Bagel and Some Others Depending on who is fronting 
 
 ~`He/They/Any
 
