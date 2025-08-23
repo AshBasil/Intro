@@ -8,14 +8,25 @@
 
 ~`He/They/Any
 
-~`interact I don't mind!
+~`interact I don't mind! —Alex/🥤🎉🪩
+(Please Don't...)—❄️🖤🗡️/Itrapped
 
-~`Suspected System 
+~`Suspected System —🗡️🦉🍗/Telamon
 
-~` We love cosplaying on Roblox
+~` We love cosplaying on Roblox —🎀❄️🐇⚙️🤖/Eunoia
 
-~` We are gender fluid And pansexual 
+~` We are gender fluid And pansexual(some of us at least...)—🥤🎉🪩
 
-~` we are not that talkative if you don't know Us, we are mostly listeners then yappers, we only talk alot with people We trust and Are close with<3
+~` most of us don't really talk much with people they don't know XP—🥤🎉🪩
 
-{Made By 🌀🪽🍷💚, Updated By 🥤🎉🪩}
+🌀🪽🍷💚= Venti/Ven
+🥤🎉🪩=Alex/Noob
+❄️🖤🗡️🦚=itrapped/trap
+🗡️🦉🍗=Telamon/Tela
+🎀❄️🐇⚙️🤖=Eunoia
+🔪🖤= Two Time/Time
+💻🎨= Kanade/kana
+🍕❤️= Elliot/Elli
+👾🌺🪩= Infected
+☀️💻💤🪽= Brandon
+🍗🐔⚔️= Shedletsky/Shed
