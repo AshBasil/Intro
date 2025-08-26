@@ -8,12 +8,12 @@
 
 ~`He/They/Any
 
-~`interact I don't mind! —Alex/🥤🎉🪩
-(Please Don't...)—❄️🖤🗡️/Itrapped
+~`interact I don't mind! —🥤🎉🪩
+(Please Don't...)—❄️🖤🗡️
 
 ~`Suspected System —🗡️🦉🍗/Telamon
 
-~` We love cosplaying on Roblox —🎀❄️🐇⚙️🤖/Eunoia
+~` We love cosplaying on Roblox —🎀❄️🐇⚙️🤖
 
 ~` We are gender fluid And pansexual(some of us at least...)—🥤🎉🪩
 
